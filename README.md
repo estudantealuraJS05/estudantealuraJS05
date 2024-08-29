@@ -1,3 +1,6 @@
+https://tenor.com/pt-BR/view/coffee-pouring-coffee-coffee-cup-morning-good-morning-gif-16758453
+
+
 Olá, sou @estudantealuraJS05
 - 👀 Estou interessado em ...
 - 🌱 Atualmente estou aprendendo...

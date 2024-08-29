@@ -4,8 +4,8 @@ estou desenvolvendo scratch e javascript,alem do alura
 
 ![](https://tenor.com/pt-BR/view/coffee-pouring-coffee-coffee-cup-morning-good-morning-gif)-16758453
 
-![](https://tenor.com/pt-BR/view/coffee-pouring-coffee-coffee-cup-morning-good-morning-gif)-16758453
-meu nome e joao 
+![](https://tenor.com/pt-BR/view/coffee-pouring-coffee-coffee-cup-morning-good-morning gif)-I'm currently working on ...
+
 
 Olá, sou @estudantealuraJS05
 - 👀 Estou interessado em ...
